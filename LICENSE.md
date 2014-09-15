@@ -1,1 +1,1 @@
-not open
+not open for others.
